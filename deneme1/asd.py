@@ -1,0 +1,1 @@
+loctor ödevi
